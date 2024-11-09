@@ -8,4 +8,4 @@ Link. Video: https://www.youtube.com/watch?v=AJ2Xqm1viEc
 
 Entrega 3
 
-Link. Video: ???
+Link. Video: https://www.youtube.com/watch?v=YUjXyf0hZnw
